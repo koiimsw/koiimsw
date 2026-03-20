@@ -1,1 +1,1 @@
-![bfb5d515-5298-4036-a4b2-51797d5a5702](https://github.com/user-attachments/assets/bfa9caa0-75fe-4a6c-8e97-b270b8bad7d6)
+![d a o k o_ GIRL - Japan Animator Expo](https://github.com/user-attachments/assets/8db470ff-61ec-4e9d-a05a-9d3814fe6cbb)
